@@ -1,1 +1,0 @@
-Airline coded logos
